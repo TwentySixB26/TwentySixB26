@@ -1,4 +1,4 @@
-# 💫 Helloeveryone,Iam Bayu Aji Nugroho:
+# 💫 Helloeveryone,Iam Bayu :
 👦 I am a student<br>🔵 hardline Chelsea fans<br>🌱😺flora and fauna lover<br>💻 beginners who are learning<br>📩 questions will always be open to everyone
 
 
